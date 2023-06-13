@@ -8,6 +8,6 @@
 |Pieter| 39 | Berlin
 |Paul| Neumunster|
 |Shafiullah| Berlin|
-|Micah| 35 | Lower Saxony |
+|Micah:smile: | 35:seedling: | Lower Saxony👍|
 |Eugen| 35 | Hamburg |
 |Umer | 39 | Remscheid |
